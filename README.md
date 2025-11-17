@@ -1,1 +1,1 @@
-# ADD_DBDOY
+# Kepo lu kontol
